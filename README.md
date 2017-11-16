@@ -9,5 +9,5 @@ https://ja.wikipedia.org/wiki/%E6%99%AF%E6%B0%97%E5%BE%AA%E7%92%B0
 - 日本女優の化粧の変遷100年  
 http://hma.shiseidogroup.jp/info/p20161222_5392/
 
-- 還暦祝いの歴史
+- 還暦祝いの歴史  
 http://www.kanrekiiwai.com/history/
