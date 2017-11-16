@@ -27,6 +27,9 @@ http://www.kanrekiiwai.com/history/
 - 日本女優の化粧の変遷100年  
 http://hma.shiseidogroup.jp/info/p20161222_5392/
 
+- コンドラチェフの波  
+http://iot-jp.com/iotsummary/iotbusiness/%E3%82%B3%E3%83%B3%E3%83%89%E3%83%A9%E3%83%81%E3%82%A7%E3%83%95%E3%81%AE%E6%B3%A2/.html
+
 - 景気循環（wikipedia）  
 https://ja.wikipedia.org/wiki/%E6%99%AF%E6%B0%97%E5%BE%AA%E7%92%B0
 
